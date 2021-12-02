@@ -1,3 +1,0 @@
-# Proyecto-Final
-# proyecto
-# proyecto
